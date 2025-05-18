@@ -1,0 +1,1 @@
+# Czerwoni-z-odzieje-brak-zysk-w-w-banku-z-dewidendy.
