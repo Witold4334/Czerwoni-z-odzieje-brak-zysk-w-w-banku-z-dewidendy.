@@ -6,3 +6,4 @@ U żydów jest tylko praca na etacie za 1000 zł na globie za karę dla młodych
 Egzaminatorzy prawa jazdy też są stać i są wyznania judaistycznego jak starosta i wojewoda bo nie chcą wydać prawa jazdy na Tesle i nie chcą dać zarobić w Banku na Tesle i Dom 1000m2. Kiedyś lokaty bez wojsk żydowskich i przjmowania przez nich biznesów przez tych komunistów zystki były wielkie i można było kupić Dom 1000m2 i Tesle. Dziś nic nie da się zrobić przez tą policje z Kleru tylko zasużył i zasużła nie zasużył to pracuje za karę na etacie za 1000 zł lub ma rente 2200 lub 1000 zł. 
 Jak zwykle te austystyki chronią lasów państwowych i dają oszczędzacze do kosza bo PGE energetycy mają w kalkulatorach psitron halotrony do wykrywania oszczędzaczy znów im się płaci. I nic nie wypłacają banki autystyczne. Grosze czasami ujemne. 
 W ich głowach jest jakiś wirus komuny. 
+Niech Git Hub przekarze złodzieją post mafi że dostaną renty z ZUS i mogą szuakać żydzi domu na ulicy. 
